@@ -1,0 +1,1 @@
+Bölüm somu çalişmasi
